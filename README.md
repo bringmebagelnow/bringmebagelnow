@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @bringmebagelnow
 - 👀 I’m interested
 - 🌱 I’m currently learning!
-- 💞️ I’m not looking to collaborate
+- 💞️ I’m perhaps looking to collaborate
 - 📫 How to reach me?
